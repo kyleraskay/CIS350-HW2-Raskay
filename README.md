@@ -10,3 +10,5 @@
 
 I do not have much experience in coding in a workplace but I have done video editing and graphic design for some businesses. I also have taken many courses in Java, Python and C. I have created some personal projects like a wifi garage door opener and different apps on my computer to help me day to day. 
 
+
+[MEME](https://www.yourtango.com/2018314733/30-best-office-quotes-of-all-time-for-all-the-dunderheads-in-the-room)
